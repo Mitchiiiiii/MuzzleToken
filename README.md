@@ -1,1 +1,1 @@
-https://www.muzzletoken.com
+https://muzzsnap.com/
